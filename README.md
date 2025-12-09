@@ -14,7 +14,8 @@ Gopalganj, Bangladesh
 [![](https://visitcount.itsvg.in/api?id=hridoyratna&icon=0&color=0)](https://visitcount.itsvg.in)         
    ---
    
-<img width="600" height="400" alt="image" src="https://github.com/user-attachments/assets/80149d9a-c8a6-45a1-8cad-4a9c7a3bed9f" />
+![TNCR-graphics-KB-2](https://github.com/user-attachments/assets/f47e41b0-0bc0-4eed-9669-0386f6babe6e)
+
 
 
 
